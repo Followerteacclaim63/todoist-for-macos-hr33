@@ -1,4 +1,4 @@
-#  
+#  Todoist for macOS secure Integration: dark mode & task automation is the best Todoist for macOS integration, featuring dark mode and task automation. Safe, efficient, and
 
 
 
